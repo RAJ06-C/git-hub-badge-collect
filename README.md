@@ -2,3 +2,5 @@
 collecting the badges
 
 heare comes the next trick
+
+HEARE COMES THE COLLABRATOR BADGE
